@@ -1,6 +1,6 @@
 # 🌟 Hey there
 
-I’m currently working at **DoiT international** 🚀.  
+I’m working at **DoiT international** 🚀.  
 Also a **third-year Computer Science student** 📚.
 
 - 💡 Fun fact: My best code happens when coffee ☕ meets the perfect playlist 🎧
